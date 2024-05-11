@@ -10,3 +10,8 @@ bu araçları kullanarak hiç bilgisi olmadan ticaret yapabilirler yapay zekamı
 
 https://github.com/mustafaaozk/ticarelt/assets/113204824/4d921a4f-765e-481e-b846-e32e96564ba5
 
+***
+<h3 align="center"> Nurettin Mustafa Özkaya </h3>
+<p align="center">
+      https://linktr.ee/mustafaaozk
+</p>
